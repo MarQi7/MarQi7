@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a few small game projects.<br>I'm learning how to create basic game engine mechanics.<br>I'm looking forward to contributing to an open source project.<br><br>I haven't uploaded any projects for collaboration just yet, but feel free to reach out about any projects that I post in the future.<br><br>Email: mar.qi@outlook.com<br><br>
+I'm currently working on a few small game projects.<br>I'm learning how to create basic game engine mechanics.<br>I'm looking forward to contributing to an open source project.<br><br>I haven't uploaded any projects for collaboration just yet, but feel free to reach out about any projects that I post in the future.<br><br>Email: dj.marqi7@gmail.com<br><br>
 
 
 ## 🌐 Socials:
